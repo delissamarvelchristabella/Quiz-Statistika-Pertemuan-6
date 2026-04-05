@@ -1,1 +1,0 @@
-# Quiz-Statistika-Pertemuan-6
